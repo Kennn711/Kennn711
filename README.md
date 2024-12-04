@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Kennn711
 - 👀 I’m interested in Coding  
 - 🌱 I’m currently learning Web Developing
-- 📫 How to reach me, marcell040507@gmail.com
+- 📫 How to reach me, kennnofficial711@gmail.com
 - 😄 Pronouns: Kennn
 - ⚡ Fun fact: I,m a Human :)
 
