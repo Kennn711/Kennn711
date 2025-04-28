@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Kennn711
 - 👀 I’m interested in Coding  
-- 🌱 I’m currently learning Role Management
 - 📫 How to reach me, kennnofficial711@gmail.com
 - 😄 Pronouns: Kennn
 - ⚡ Fun fact: I,m a Human :)
